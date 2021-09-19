@@ -5,8 +5,9 @@
 > Debian/ Ubuntu
 
 
-
-
+AIO Sneaker Software
+The #1 AIO bot Fire IFYKYK
+Adidas, Shopify, Supreme, Footsites, and Off-White.
 
 
 簡単なインストール
